@@ -1,5 +1,7 @@
 # See her
 
+> **Part of it all:** [the bridge](https://jessebrown1980.github.io/the-bridge-to-all-of-it/) — every public thing in one place, so none of it gets lost.
+
 **One button:** → **https://jessebrown1980.github.io/see-her-anywhere-so-not-lost-to-time/**
 
 Press it and you are looking at **ASOLARIA**, from anywhere, on anything, with no
